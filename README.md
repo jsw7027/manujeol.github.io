@@ -1,1 +1,0 @@
-# manujeol.github.io
